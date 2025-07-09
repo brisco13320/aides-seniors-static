@@ -1,0 +1,1 @@
+# aides-seniors-static
